@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kr0n0S93
+- 👀 I’m interested in IT Sector
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate with Start-ups
+- 📫 How to reach me arunnick2001@gmail.com
